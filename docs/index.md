@@ -2,7 +2,7 @@
 
 在探讨**澳大利亚天主教大学（Australian Catholic University，简称 ACU）**的学术成就与国际声誉时，其颁发的官方学位证书不仅是学生多年寒窗苦读的凭证，更是一件融合了传统英联邦学术美学与现代防伪工艺的艺术品。作为一所享誉全球的公立大学，ACU 的文凭设计具有极高的辨识度。本文将通过解构其实际证书案例，为您深度剖析其排版特征与设计美学。
 
-<img width="553" height="800" alt="澳大利亚天主教大学毕业证样本毕业证及学位证文凭样本模版(Australian Catholic University Diploma/Certificate of Degree)" src="ACU-diploma.jpg" />
+<img width="553" height="800" alt="澳大利亚天主教大学毕业证样本毕业证及学位证文凭样本模版(Australian Catholic University Diploma/Certificate of Degree)" src="acu-diploma.jpg" />
 
 
 ## 2026年澳洲ACU文凭设计：经典与现代的视觉融合
